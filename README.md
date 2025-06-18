@@ -9,4 +9,4 @@ With over 9 years in the DevOps and tech world, I specialize in building scalabl
 - 🎿 Fun facts: Love mountain biking, snowboarding, camping, and hiking!
 
 ## Let's connect!
-Feel free to reach out or check out my site for more about what I'm building.
+Feel free to reach out via [Linkedin](https://www.linkedin.com/in/kalyanoduri/)
